@@ -1,6 +1,11 @@
-<p align=center> this is a WIP but im veryyy people avoidant and usually don't talk to ppl i don't vibe with !! im working on this but ya. usually dry unless i'm trying to match ur energy. i use cyberpunk 2077 slang alotttt btw, blah blah blah i'll finish ts later :p <p align=center>
+<p align=center> graphic place holder <p align=center>
 
 <p align="center">
-  <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZTk4dzIxYnIzeXVzNzByYmJ3NXZ6cTl2ejM1dXl5a2Y5cmJ5ZnZ6bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/RSlwWEUkEw2A9YGV6Y/giphy.gif#left"/>
+  <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExOHppYndyYnNudW81M3dqNTYzN2Z4OHduNXo0YzJsZ214bGd2M2VsaCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/ECoXhE4eVUAWoqg38R/giphy.gif"/>
 </p>
 
+<p align=center> text text word wow <p align=center>
+
+<p align="center">
+  <img src="https://preview.redd.it/momcveexj2f91.jpg?width=640&crop=smart&auto=webp&s=76f00605ba1ca45330737c3dcb923f3ba6ada5be"/>
+</p>
