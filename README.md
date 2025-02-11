@@ -7,5 +7,5 @@
 <p align=center> text text word wow <p align=center>
 
 <p align="center">
-  <img src="https://preview.redd.it/momcveexj2f91.jpg?width=640&crop=smart&auto=webp&s=76f00605ba1ca45330737c3dcb923f3ba6ada5be"/>
+  <img src="https://i.ibb.co/kVxD2PPF/9jsgwb.jpg"/>
 </p>
